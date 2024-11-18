@@ -1,4 +1,4 @@
-# Free Claude AI Pro Membership Account Wholesale Purchase
+# Free Claude AI Pro Shared & Exclusive Membership Account Wholesale Purchase
 
 Website: [https://allshop.vip](https://allshop.vip/?_referrer=adgithubbdakx)
 
